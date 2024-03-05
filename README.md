@@ -1,6 +1,6 @@
 ### Olá, eu me chamo Priscila Montalban. 👋
 
-## Sou formada em Gestão Financeira e Análise e Desenvolvimento de Sistemas. Migurei para área de T.I no final de 2020. 
+## Sou formada em Gestão Financeira e Análise e Desenvolvimento de Sistemas. Migrei para área de T.I no final de 2020. 
 
 ## Conecte-se comigo
 
